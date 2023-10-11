@@ -1,2 +1,2 @@
 # Aakriti-Mishra
-Hai I'm an undergraduate 
+Hi I'm an undergraduate 
